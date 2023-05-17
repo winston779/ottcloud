@@ -1,6 +1,6 @@
 # OTTCloud官网地址
 
-最新地址：[ottcloud.net](https://www.ottcloud.net/#/register?code=xn30gjn5)
+最新地址：[ottcloud.net](https://www.ottcloud.xyz/#/register?code=xn30gjn5)
 
 ## 简介
 
